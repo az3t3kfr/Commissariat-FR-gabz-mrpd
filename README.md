@@ -1,4 +1,6 @@
-#Ressources#		créé par AZ3T3KFR#5120
+#Ressources# https://multideveloppement.com/voir-script.php?id=7		
+
+						créé par AZ3T3KFR#5120
 
 
 Salut tout le monde voici le commissariat en full fr en cas de problème de texture française merci de me contacter sur le discord ci-dessous
