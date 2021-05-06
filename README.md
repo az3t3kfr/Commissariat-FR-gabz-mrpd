@@ -5,7 +5,7 @@
 
 Salut tout le monde voici le commissariat en full fr en cas de problème de texture française merci de me contacter sur le discord ci-dessous
 
-Je tiens à préciser que c'est pas moi qui a fait le bâtiment j'ai simplement la texture française
+Je tiens à préciser que c'est pas moi qui a fait le bâtiment j'ai simplement fait la texture française
 
 Je vous laisse également la ressource d'origine ci-dessous
 
